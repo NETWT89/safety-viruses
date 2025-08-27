@@ -1,3 +1,1 @@
-I only make Visual's i dont make real malware lol
-Note : 
-(i rarely do collabs once im more popular or somethin)
+i dont publish real malware that i make i keep it to myself!
