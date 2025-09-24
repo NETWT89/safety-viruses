@@ -1,1 +1,1 @@
-yall bruh please cut me some slack bro im not that experienced😭 (IM NOT A SKIDDER!!!)
+This is where all my Safety Viruses are at (noskid)
